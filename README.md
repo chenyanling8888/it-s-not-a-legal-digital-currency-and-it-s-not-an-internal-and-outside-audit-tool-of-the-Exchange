@@ -27,4 +27,10 @@ it's not a legal digital currency and it's not an internal-and-outside-audit too
 
 事实上这种弄虚作假用于挪动公款,欺骗贷款等等等现象早就有了,所以有了审计等职业,重点是目前的数据科技没有办法改变这种缺点,反而必然会扩大这种缺点.这个必然就不解释了,这个理由我早在一篇文章里写到.
 
-证据:上传图库,链接
+
+
+证据:
+![微信图片_20230204204306](https://user-images.githubusercontent.com/85723665/216768693-62b64393-c9d2-41b0-a138-4068c036424a.jpg)
+![微信图片_20230204204612](https://user-images.githubusercontent.com/85723665/216768745-996b2547-fdbb-44be-b919-5b48b5145431.jpg)
+![微信图片_20230204205637](https://user-images.githubusercontent.com/85723665/216768935-334c8163-4aae-4139-9f44-de3b5898dd7a.jpg)
+
