@@ -71,4 +71,4 @@ it's not a legal digital currency and it's not an internal-and-outside-audit too
 ![微信图片_20230204205637](https://user-images.githubusercontent.com/85723665/216768935-334c8163-4aae-4139-9f44-de3b5898dd7a.jpg)
 
 预先报警:
-如果,我出现任何意外伤害,就是被坏人故意伤害或迫害,请相关相关人员追查并调查,谢谢!如果我死
+如果,我出现任何意外伤害,就是被坏人故意伤害或迫害,请相关相关人员追查并调查,谢谢!如果我被害死了,请查我的邮箱
